@@ -1,4 +1,7 @@
+𝘼𝙇𝙇 𝙊𝙁 𝙋𝘼𝙋7𝙍𝙐5 𝙁𝙉𝙁 𝙑𝙊𝙄𝘾𝙀𝘽𝘼𝙉𝙆𝙎 𝙁𝙊𝙍 𝙐𝙏𝘼𝙐
+
 Hi, this is all of my FnF Voicebanks that i made for UTAU! if you want to use it, you might credit me and the original creator of the Voices samples aswell
+
 Some of them might not work though but eh.. 
 [Sorry for my bad english, -Pap7ru5]
 Also Go check out these guys Voicebanks!
